@@ -2,7 +2,7 @@
 - 👀 I’m interested in Developing Innovative and Entertaining Tools
 - 🌱 I’m currently learning DSA and ML
 - 💞️ I’m looking to collaborate on Future Development Projects
-- 📫 How to reach me email:- hridaydutia022@gmail.com
+- 📫 How to reach me email:- hridaydutia10@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am Actually 6ft 
 
